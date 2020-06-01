@@ -22,4 +22,4 @@ If you press two buttons one after another a secret button will appear temporari
 
 3. Leedle + No Games = Faze
 
-4. John Shammas + Dan Kenny = MLG Sandstorm
+4. Shammas + DanKenny = MLG Sandstorm
